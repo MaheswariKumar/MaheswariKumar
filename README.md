@@ -2,7 +2,7 @@
 Just Keep Learning...📖
 Do Something Great....🙌
 
-I LOVE CODING✔🤞
+INTERESTED in CODING✔🤞
 
 - 🔭 I’m currently working on ...Infosys😎
 - ⚡ Have Fun always😁✌
