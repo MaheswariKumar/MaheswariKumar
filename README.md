@@ -4,5 +4,5 @@ Do Something Great....🙌
 
 INTERESTED in CODING✔🤞
 
-- 🔭 I’m currently working at ...Infosys😎
-- ⚡ Have Fun always😁✌
+- 🔭 Ex-Infosysian😎
+- 😎Frontend Developer/Full Stack Developer
