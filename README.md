@@ -4,5 +4,5 @@ Do Something Great....🙌
 
 INTERESTED in CODING✔🤞
 
-- 🔭 Ex-Infosysian😎
+- 🔭 Ex-Infoscion😎
 - 😎Frontend Developer/Full Stack Developer
